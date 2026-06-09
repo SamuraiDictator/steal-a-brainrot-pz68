@@ -1,4 +1,4 @@
-
+Experience steal a brainrot like never before with steal a brainrot Script premium, the #1 Script. Includes invisibility and no cooldown for
 
 
 
